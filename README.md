@@ -1,0 +1,1 @@
+# qgs2023-training-camp
